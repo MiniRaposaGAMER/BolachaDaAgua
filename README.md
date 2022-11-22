@@ -6,7 +6,9 @@ umas coisas da bolacha de agua e sal
 
 # Sobre as Vozes
 as chromatics que estão aqui são as da minha parte
+
 as dwps do brasonic são do zakev
+https://drive.google.com/drive/folders/1r6f-zvhocqn7Tz0OUNLvVQLEC-QVpJU9
 
 ## EFFECTS
 
